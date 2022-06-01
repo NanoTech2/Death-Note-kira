@@ -1,0 +1,2 @@
+# Death-Note-kira
+The manga series Death Note features an extensive cast of fictional characters designed by Takeshi Obata with their storylines created by Tsugumi Ohba.[1] The story follows the novel of a character named Light Yagami, who uses the notebook he found in order to cleanse the world of those humans which he deemed unfit for society. A team of professional investigators set out to find out the mysterious killer and arrest him, and thus many other characters are introduced until Light is eventually caught. 
